@@ -3,7 +3,7 @@ title: Here Is How To Make Lipstick Packaging Boxes To Upsurge Sales
 date: 2022-01-31T15:04:10.000Z
 description: >-
   Lipsticks are the most versatile product in the cosmetic line. It has several reasons. You get variety like gloss, matte, bullet lipsticks, lipsticks with a brush to apply, Cryon lipsticks for those who cannot handle liquid types and lip pencils to make a clean base. Such a variety in a single product, how can it not become people’s favourite product to play with.
-image: /img/Lipstick-Boxes.jpg
+image: /img/lipstick-boxes.jpg
 ---
 
 Another reason for being the best product is that women can create a whole go-to look with a single lipstick. It is so because these lipsticks can play the role of eyeshadow and bluish on when needed as well. So, when you are in a hurry and can’t find products, just gran a lipstick and create your favourite soft look in one minute.
